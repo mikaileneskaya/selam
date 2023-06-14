@@ -1,2 +1,3 @@
-# selam
-Selam!
+# Selam!
+
+It was a page I opened to get a friend's number. I am sharing it publicly by popular demand(1 person). The last link should normally go to wp.me/90....
